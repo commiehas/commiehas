@@ -21,9 +21,9 @@ We invite all comrades those who share this vision. All we ask is that you follo
 1. **Honest**
 The first important principle is honesty, ***we didn't control what you have, think, and do.*** You have full control of yours!
 
-2. **Responsibility** 
+2. **Responsibility** everyone taking a responsibilty on their action.
 
-3. **Believe**
+3. **Believe** believe all comrade do good thing.
 
 ## How do I get Commie tokens? And How it's works?
 ***Commie token is free for all comrades who wants to fight for it!***
